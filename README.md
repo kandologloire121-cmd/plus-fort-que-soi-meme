@@ -49,3 +49,23 @@ les sacrifices portent toujours le résultat alors choisir quel type des sacrifi
 - Tout le monde rêve de devenir riche, mais personne ne veut faire les sacrifices pour devenir riche. Tout le monde veut le confort, mais personne ne veut payer le prix.
 ​
 - Ne sois jamais trop présent aux yeux de tout le monde. Ce qui est rare a de la valeur.
+
+🧠 CHAPITRE 3 — Être sage et vrai
+ 
+- La sagesse ne naît pas avec toi. L'intelligence, tu la prends. La connaissance, c'est en vivant que tu la trouves.
+​
+- Être "mauvais" sans faire du mal, c'est se protéger. Être trop gentil avec tout le monde, c'est se perdre.
+​
+- Celui qui lit mais ne comprend pas, et celui qui ne sait pas lire — les deux ont un problème, mais ce n'est pas le même.
+​
+- La meilleure politique qui existe, c'est celle des enfants : ils ne gardent pas rancune, ils oublient vite, ils sont purs.
+​
+- On voit le coupable et la victime, mais on ne demande jamais ce qui a poussé le coupable à agir.
+​
+- Je ne suis pas un génie ni un surdoué. Je suis juste quelqu'un qui a décidé de ne pas croire ce qui n'est pas visible, de remettre tout en question, de créer ses propres lois plutôt que d'obéir les yeux fermés.
+​
+- Ne juge JAMAIS personne. Si tu n'as jamais vécu ce qu'il a vécu, tu ne peux pas comprendre.
+​
+- La vie est belle quand tu es entouré des gens sincères, mais cruelle quand ces mêmes personnes te trahissent.
+​
+- Fais ta vie, ne regarde personne. Ne crois pas à ce que tu ne vois pas. Écoute toujours, mais ne prends pas tout. Ne prend pas de décision à la place de quelqu'un — laisse-le être responsable de ses choix.
