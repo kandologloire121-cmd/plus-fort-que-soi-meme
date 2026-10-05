@@ -32,3 +32,20 @@ les sacrifices portent toujours le résultat alors choisir quel type des sacrifi
 - Parfois il faut savoir dire NON, même si tout le monde dit OUI. Parce qu'il faut chercher son chemin par soi, pas par les autres.
 ​
 - Si on me disait de diriger ce monde, je refuserais sans hésiter. Je préférerais diriger un troupeau de lions que des hommes.
+💰 CHAPITRE 2 — Richesse et Confort
+ 
+- Si le bonheur était égal à l'amour, les pauvres ne travailleraient pas si dur pour obtenir un poste.
+​
+- Si l'argent faisait le bonheur, les riches ne chercheraient pas à fonder une famille et ne s'inquiéteraient pas de garder leur emploi.
+​
+- Le bonheur ne se cache pas derrière l'amour (il engendre aussi la haine), ni derrière l'argent (il rend orgueilleux). La vraie liberté, c'est de choisir ses décisions et d'assumer ses actes.
+​
+- Ne te compare JAMAIS à personne. Chaque être a quelque chose de personnel qui ne peut pas être révélé.
+​
+- Les Africains se comparent aux Européens et oublient une chose : l'Europe a construit beaucoup de routes parce qu'elle n'a pas de richesses sous le sol. L'Afrique, elle, a ses richesses sous terre. Si on construit comme eux, on perd sa richesse à jamais.
+​
+- Le diamant est rare, donc précieux. Mais sans le caillou, pas de maison, pas d'hôpital, pas de route. Le commun construit le monde, le rare brille. Les deux sont nécessaires.
+​
+- Tout le monde rêve de devenir riche, mais personne ne veut faire les sacrifices pour devenir riche. Tout le monde veut le confort, mais personne ne veut payer le prix.
+​
+- Ne sois jamais trop présent aux yeux de tout le monde. Ce qui est rare a de la valeur.
