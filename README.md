@@ -86,3 +86,19 @@ les sacrifices portent toujours le résultat alors choisir quel type des sacrifi
 - Sois bon avec toi-même d'abord, parce que personne d'autre ne le fera à ta place.
 ​
 - Tout le monde s'en fiche de ta vie. Personne ne te regarde autant que tu le penses. Alors vis ta vie comme TU veux, pas comme les autres veulent que tu la vives.
+
+🌱 CHAPITRE 5 — Force, Combat et Persévérance
+ 
+- Une graine de baobab : rien d'important. On peut l'écraser, la jeter. Mais avec le temps, elle pousse toute seule, dans l'ombre. On la critique, on la sous-estime… et puis elle dépasse tous les arbres. Quand elle est grande, il est trop tard pour la détruire.
+​
+- Tu es né vainqueur : des millions de spermatozoïdes, et toi tu as gagné la course. Tu es déjà un champion avant même de commencer à vivre. Rien ne peut t'arrêter.
+​
+- Parfois il faut arrêter de réfléchir et passer à l'action. Il y a un temps pour penser, et un temps pour faire.
+​
+- La vengeance peut être une force qui te fait avancer quand tout le monde est contre toi. Mais apprends à la maîtriser, sinon c'est elle qui te maîtrise.
+​
+- La pluie qui tombe la nuit est plus forte que celle du jour. Méfie-toi de ceux qui agissent dans l'ombre.
+​
+- Accepte d'être méchant pour l'histoire, si c'est nécessaire pour faire le bien. La vie change les gens. Ne te crois pas à l'abri de rien.
+​
+- La meilleure arme, ce n'est pas la force : c'est le silence, la patience, et l'action sans bruit.
