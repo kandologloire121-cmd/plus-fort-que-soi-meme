@@ -1,3 +1,4 @@
+
 # plus-fort-que-soi-meme
 Pensé et sagesse pour être plus fort que jamais 
 reste ferme sur ce décision .
@@ -102,3 +103,17 @@ les sacrifices portent toujours le résultat alors choisir quel type des sacrifi
 - Accepte d'être méchant pour l'histoire, si c'est nécessaire pour faire le bien. La vie change les gens. Ne te crois pas à l'abri de rien.
 ​
 - La meilleure arme, ce n'est pas la force : c'est le silence, la patience, et l'action sans bruit.
+
+📖 CHAPITRE 6 — Sur la vérité et l'illusion
+ 
+- Vivons-nous vraiment, ou vivons-nous dans une illusion ?
+​
+- La vie est-elle courte ou longue ? On ne sait pas. La mort vient comme la pluie : sans prévenir.
+​
+- Dieu ? L'homme l'a créé à son image. Quand l'homme est bon, il est comme Dieu. Quand il est mauvais, il est comme un démon. L'homme est à la fois l'un et l'autre. Il n'y a rien au-dessus de lui que lui-même.
+​
+- Si un jour tu découvres que celui que tu priais est le mal, et celui que tu méprisais est le bien — que feras-tu ?
+​
+- Il y a des vérités qui ne méritent pas d'être lues, mais d'être vues. Je ne vous demande pas de me croire sur parole : je vous demande de douter, de vérifier, de chercher par vous-mêmes.
+​
+- Celui qui lira ce livre, le remettra en question et réfléchira — celui-là mérite mon respect.
