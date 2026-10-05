@@ -69,3 +69,20 @@ les sacrifices portent toujours le résultat alors choisir quel type des sacrifi
 - La vie est belle quand tu es entouré des gens sincères, mais cruelle quand ces mêmes personnes te trahissent.
 ​
 - Fais ta vie, ne regarde personne. Ne crois pas à ce que tu ne vois pas. Écoute toujours, mais ne prends pas tout. Ne prend pas de décision à la place de quelqu'un — laisse-le être responsable de ses choix.
+❤️ CHAPITRE 4 — Amour, Vérité et Liberté
+ 
+- Croire en l'amour sans intérêt, c'est comme croire que Jésus revient bientôt : une chance sur cent.
+​
+- La pire des faiblesses qui conduit à la perte, c'est l'amour aveugle : tu donnes tout sans rien attendre en retour.
+​
+- Si l'homme aime sans condition, que se passe-t-il ? Si tu brises un cœur qui n'a jamais connu la douleur, que deviens-tu ?
+​
+- L'argent est-il bon ? Si oui, pourquoi l'homme est-il prêt à tuer pour en avoir ? S'il est mauvais, pourquoi tout le monde le veut ?
+​
+- L'amour est le plus grand crime du monde, et la loi ne le juge jamais.
+​
+- Si quelqu'un te méprise, ne pleure pas. Regarde-toi dans le miroir et dis : je vaux plus que ça.
+​
+- Sois bon avec toi-même d'abord, parce que personne d'autre ne le fera à ta place.
+​
+- Tout le monde s'en fiche de ta vie. Personne ne te regarde autant que tu le penses. Alors vis ta vie comme TU veux, pas comme les autres veulent que tu la vives.
